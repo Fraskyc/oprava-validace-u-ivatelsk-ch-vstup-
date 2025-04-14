@@ -1,0 +1,1 @@
+# oprava-validace-u-ivatelsk-ch-vstup-
